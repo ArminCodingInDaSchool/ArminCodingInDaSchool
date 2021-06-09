@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @ArminCodingInDaSchool
-- 👀 I’m interested in joe joe mom
+- 👀 I’m interested in joe, joe mom
